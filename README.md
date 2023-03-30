@@ -1,1 +1,1 @@
-# learning
+# learning makes us better.
